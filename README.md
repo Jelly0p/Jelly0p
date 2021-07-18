@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @Jelly0p
+- 👀 I’m interested in game development and bot development
+- 🌱 I’m currently learning game development
+- 💞️ I’m looking to collaborate on Roblox and discord servers
+- 📫 How to reach me discord. Jelly#3000 twitter. JellyInsanity
+------------------------------------------------------------------
